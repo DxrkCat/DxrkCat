@@ -1,5 +1,5 @@
 
-![meow](https://github.com/DxrkCat/DxrkCat/assets/124828932/8ee1bfd3-e7a7-4b54-a7c7-358e6f493086)
+![ai](https://github.com/DxrkCat/DxrkCat/assets/124828932/6bb089ac-d131-4ca5-97e4-4814b49c45f4)
 
 🌐 Welcome to @DxrkCat's Digital Realm 🌐
 
